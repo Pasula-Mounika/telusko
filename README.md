@@ -1,3 +1,6 @@
 # telusko
 
-Hi welcome to my world telusko.com website.
+Hi welcome to my world telusko.com website.......
+
+This is website mostly having files are...
+All the information about that the website and that related product info.
